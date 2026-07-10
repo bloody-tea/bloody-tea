@@ -4,11 +4,11 @@
 
 <p align="center"><i>𝐚𝐦erica ♡ 𝐯𝐚lentine</i></p>
 
-<p align="center">𝚑y / 𝚊im</p>
+<p align="center">𝚑y / <i><b>𝚊im</b></i></p>
 
-<p align="center">sign guestbook / straw !</p>
+<p align="center">sign <i>guestbook</i> / <i>straw</i> !</p>
 
 <p align="center">
-  <a href="https://bloodytea.atabook.org/">ata</a> <a href="https://etherealgarden.straw.page/"> strawp</a> <a href="https://pronouns.cc/@bloodytea">prnscc</a>
+  <i><a href="https://bloodytea.atabook.org/">𝐚ta</a></i> <i><a href="https://etherealgarden.straw.page/"> 𝐬trawp</a></i> <i><a href="https://pronouns.cc/@bloodytea">𝐩rns.cc</a></i>
 </p>   
 
