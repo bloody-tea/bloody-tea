@@ -6,6 +6,6 @@
 <p align="center"> hy / <i>hym</i>
 
 <p align="center">
-  <i><a href="https://bloodytea.atabook.org/">atabook</a></i> <i><a href="https://etherealgarden.straw.page/"> strawpage</a></i> <i><a href="https://pronouns.cc/@bloodytea">prns.cc</a></i>
+  <i><a href="https://bloodytea.atabook.org/">atabook</a></i> <i><a href="https://pronouns.cc/@bloodytea">prns.cc</a></i>
 </p>   
 
