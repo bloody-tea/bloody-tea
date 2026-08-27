@@ -1,11 +1,16 @@
 <div align="center">
 <p align="center">
-  <img width="200" height="250" src="https://files.catbox.moe/74cqtj.png">
-<p align="center"> wip profile redo
-</p>
+  <img height = "250" src="https://i.pinimg.com/736x/2c/57/95/2c5795536dc99c7ba08619e96a1189f2.jpg">
+<p align="center">
+  read infos. 
 
+  main: [@roadtosleepyhollow](https://github.com/roadtosleepyhollow)
+  
+  alt: [@bloody-tea](https://github.com/bloody-tea), [@prussiaa](https://github.com/prussiaa)
+</p>
+  
 <details closed>
-<summary> $${\color{#cad2c5}pony town / byi}$$</summary>
+<summary> pony town / byi</summary>
 ⠀
 
 Always assume i'm named Val. Or ferry. whatever works, check my prns.cc.
