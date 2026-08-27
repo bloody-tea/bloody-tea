@@ -1,7 +1,5 @@
 <div align="center">
   
-  [![Hits](https://hits.sh/github.com/RadioheadLover/hits.svg?style=plastic&label=listen%20to%20me%2C%20god!%20please%20help%20me!&color=F0F0F0&labelColor=66121E)](https://hits.sh/github.com/RadioheadLover/hits/)
-  
 <p align="center">
   <img height = "250" src="https://i.pinimg.com/736x/2c/57/95/2c5795536dc99c7ba08619e96a1189f2.jpg">
 <p align="center">
