@@ -1,9 +1,9 @@
 <div align="center">
   
 <p align="center">
-  <img height = "250" src="https://i.pinimg.com/736x/2c/57/95/2c5795536dc99c7ba08619e96a1189f2.jpg">
+  <img height = "250" src="https://i.pinimg.com/736x/b6/93/8e/b6938e03fa21ad460c9c1c609a3ee19f.jpg">
 <p align="center">
-  read infos, it's copy pasted from my main acc
+  read infos
 
 
 </p>
