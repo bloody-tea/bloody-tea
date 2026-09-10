@@ -15,7 +15,7 @@
   
   main: [@roadtosleepyhollow](https://github.com/roadtosleepyhollow)
   
-  alt: [@bloody-tea](https://github.com/bloody-tea), [@prussiaa](https://github.com/prussiaa)
+  alt: [@bloody-tea](https://github.com/bloody-tea), [@engineer-monkey](https://github.com/engineer-monkey)
 
   
 pony town:
