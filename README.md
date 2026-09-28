@@ -11,24 +11,19 @@
 <details closed>
 <summary> pony town / byi</summary>
  
-  le verities being #reytro 
-  
+  !!DO NOT INVOLVE ME IN DRAMA/DISCOURSE UNLESS IT'S NEEDED!! it pisses me off if i dont have any correlation to some bullshit u get in and drag me in
+
+im less active due to school, other hobbies, and stuff
+
   main: [@roadtosleepyhollow](https://github.com/roadtosleepyhollow)
   
   alt: [@bloody-tea](https://github.com/bloody-tea), [@engineer-monkey](https://github.com/engineer-monkey)
 
-  
-pony town:
+this is prone to change, read below for a potentially triggering dni list, and important information! have a good day, tschüss!
 
-c/h freely, unless i'm with a friend, unless you ask us both. mainly with [@JAGERHEART](https://github.com/JAGERHEART) / [@ger-ita](https://github.com/ger-ita), and [@solstisGPT](https://github.com/solstisGPT), but it can be someone else occasionally. we are not partners, we are close friends. occasionally with [@whaminac](https://github.com/whamaniac) as well! very beloved people to us.
+important :
 
-I'm not a fan of blocking. If i block you. you are a bad person to me / us, or you're problematic. do not contact me if you do find out, *unless you're apologizing directly to me, or you're explaining your past and taking accountability.*
-
-I'm asleep/offtab on pony town a lot, so expect me to be on stuff like among us, roblox, minesweeper, ibispaint, krita, etc. whisper to interact, as i won't likely see your message if it's in public chats. greatly appreciated.
-
-hi dni unless needed k*rl
-
-DNI:
+⚠⚠ DO NOT INTERACT IF YOU HAVE A HISTORY OF/ARE ⚠⚠
 
 [RADQUEERNESS](https://lgbtqia.wiki/wiki/Radqueer) (includes, but not limited to; transrace, trans age, and "being" trans disabled, and xenosatanism. click the link for more info about it. it's a bad term.)
 
@@ -46,6 +41,7 @@ you talk about any kind of **serious topics** ([THE EPSTIEN FILES](https://en.wi
 
 You are a bad person, and I believe you can't change your ways, even if you were mentally ill then, or changed your ways now unless you have valid proof, if you do/are any of the above.
 
+If you want to apologize to me directly, or you want me to own up to things, and if i recognize your discord, contact my atabook, or whatever
 </details>
 
 <p align="center">
